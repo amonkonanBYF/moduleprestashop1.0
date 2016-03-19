@@ -1,0 +1,1 @@
+# moduleprestashop1.0
